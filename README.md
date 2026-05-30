@@ -7,5 +7,3 @@ The images will be saved in the Pictures Folder within this folder, once you pre
 
 
 Results of the Competetion:- https://www.linkedin.com/feed/update/urn:li:activity:6952954076741386240?utm_source=linkedin_share&utm_medium=member_desktop_web
-
-Do connect on LinkedIn:- https://www.linkedin.com/in/santanu-banerjee-093929150/
